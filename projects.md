@@ -13,3 +13,8 @@
 
 ## 🚗 Car Parts Segmentation
 🔗 **https://drive.google.com/file/d/1t-71GG2FOUtuTpwsd0VTLTU2HNlgeFEj/view?usp=drive_link** 
+
+
+
+
+https://o365inha-my.sharepoint.com/:p:/g/personal/sanjar_office_inha_ac_kr/IQDU4yPseyBzQq-L_mpWnuGsAXYfDqN_3CZoUlue6M1oSoU?e=4YOpmy
